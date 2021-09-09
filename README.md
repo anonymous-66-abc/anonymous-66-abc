@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @anonymous-66-abc
-- 👀 I’m interested in creative
+- 👀 I’m interested in creative coding
 - 🌱 I’m currently learning many things
 
 
